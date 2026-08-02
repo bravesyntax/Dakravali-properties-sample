@@ -1,0 +1,1 @@
+# Dakravali-properties-sample
